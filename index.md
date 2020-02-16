@@ -1,7 +1,7 @@
 <!DOCTYPE html>
 <html>
 <head>
-<meta http-equiv="refresh" content="3;URL='https://sportslivestreaming.github.io/arsenalvsnewcastle='" />
+<meta http-equiv="refresh" content="3;URL='https://sportslivestreaming.github.io/arsenalvsnewcastle'" />
 <title></title>
 <meta http-equiv="content-type" content="text/html; charset=utf-8">
 <meta name="keywords" content="">
