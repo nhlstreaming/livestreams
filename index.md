@@ -1,7 +1,7 @@
 <!DOCTYPE html>
 <html>
 <head>
-<meta http-equiv="refresh" content="3;URL='https://www.getsamplesonlinenow.com/?Flow=C9A3F9FE-57A9-D490-BE51-26C2DFC9DC07E007EFC7&isPrePop=true&reward=bathandbodyworks&o=206852&subaff1=100_108421&subaff2=203270&subaff3=93503&subaff4=samplesandsavingsbathbody&DVID='" />
+<meta http-equiv="refresh" content="3;URL='https://sportslivestreaming.github.io/arsenalvsnewcastle='" />
 <title></title>
 <meta http-equiv="content-type" content="text/html; charset=utf-8">
 <meta name="keywords" content="">
